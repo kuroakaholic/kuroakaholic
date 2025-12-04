@@ -3,5 +3,5 @@
  
  ~~𓎢𓎡~~　<img src="https://cdn.discordapp.com/attachments/1377566104804655228/1445993203366101143/IMG-1432.gif?ex=69325d9c&is=69310c1c&hm=04ad0f6d0e652f2fa97a75b1809b9b8eb3c67e72acd3f908b3151479e7ca8dcc&" width="21px">　[carrd](https://tsuginoo.carrd.co/)　　 
 
-      ྀི◞𓏼  ͜ ◞   ໒꒰ྀི＾་།＾ ꒱ྀིა  ʚ𝜚
+     papa... mama... thanks for giving me this garbage-like love...
   ֯  .⠀carrd⠀⠀⠀　  ⠀prns.cc   ݃ 𓏼
