@@ -1,5 +1,5 @@
 ![Profile Views](https://komarev.com/ghpvc/?username=kuroakaholic&color=gray)
-![alt text](https://ibb.co/YTZqdYKZ)
+![alt text](https://i.ibb.co/zHJ02jLJ/Untitled161-20251228221323.png)
 　　 
 
      Hey, Doc... The current you is the best.  That expression despaired by everything ! !  How wonderful... Doc.  Do you know what kind of expression you have right now? It is...the same as me.
